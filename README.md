@@ -1,1 +1,1 @@
-# Inte_IIT_Drona_aviation
+# Inter_IIT_Drona_aviation
